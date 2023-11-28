@@ -7,3 +7,4 @@ Nanchang University Computing Power and Architecture Group-2023 related open sou
 
 其中组长负责组织相关的学习任务、考核、参加比赛任务。
 
+想加入该小组，请联系相关社团管理人员或组长。
